@@ -5,7 +5,7 @@
 - 1/2 onion
 - 1/4 cup cilantro
 - Sea salt
-- Lemon
+- Lemon juice
 
 ## Instructions
 1. Mash the avocado
